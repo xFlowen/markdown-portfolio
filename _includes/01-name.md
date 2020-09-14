@@ -1,1 +1,1 @@
-# <h1> Thomas Arnold, Cool Guy
+# Thomas Arnold, Cool Guy
